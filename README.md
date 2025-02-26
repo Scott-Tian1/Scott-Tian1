@@ -5,6 +5,11 @@
 - 📫 How to reach me coding
 - 😄 Pronouns: code/coding
 - ⚡ Fun fact: code
+- 📖i go to glen shield public school
+- 🤢eric is stinky
+- 😎i like to escape jail
+- 🐥i like ducks
+- 🐒i have hair
 
 <!---
 Scott-Tian1/Scott-Tian1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
