@@ -3,13 +3,14 @@
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on coding
 - 📫 How to reach me coding
-- 😄 Pronouns: code/coding
+- 😄 Pronouns: walmart/bag
 - ⚡ Fun fact: code
 - 📖i go to glen shield public school
-- 🤢eric is stinky
+- 😎eric is not stinky
 - 😎i like to escape jail
 - 🐥i like ducks
 - 🐒i have hair
+- 🗿eric is not a simp
 
 <!---
 Scott-Tian1/Scott-Tian1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
