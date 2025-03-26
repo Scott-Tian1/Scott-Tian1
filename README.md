@@ -10,7 +10,7 @@
 - 😎i like to escape jail
 - 🐥i like ducks
 - 🐒i have hair
-- 🗿eric is not a simp
+- 🗿eric is a simp
 - 🥚egg
 
 <!---
