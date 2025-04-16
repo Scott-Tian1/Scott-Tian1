@@ -6,11 +6,11 @@
 -😄 Pronouns: walmart/bag
 - ⚡ Fun fact: code
 - 📖i go to glen shield public school
-- 😎eric is not stinky
+- 😎eric is stinky
 - 😎i like to escape jail
 - 🐥i like ducks
 - 🐒i have hair
-- 🗿eric is a simp
+- 🗿eric likes to simp on the teaches
 - 🥚egg
 
 <!---
